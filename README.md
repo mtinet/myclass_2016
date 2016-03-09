@@ -3,8 +3,10 @@
 ---
 
 	
-* [수업 진도표](https://goo.gl/HZiAYZ)
-   
+* [수업 진도표](https://goo.gl/HZiAYZ).
+
+* [내 시간표](https://goo.gl/bEZ9hu). 
+
 
    
    
