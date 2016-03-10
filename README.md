@@ -9,7 +9,6 @@
 
 
    
-   
 ---
 # 학급 관리
 ---
@@ -22,5 +21,8 @@
 
 
 * [전달사항](https://goo.gl/lDUA6f).
+ 
+
+* [와글자글 담벼락](http://padlet.com/mtinet/3pgm4gj0k8e4).
 
 ---
