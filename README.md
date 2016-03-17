@@ -25,4 +25,16 @@
 
 * [와글자글 담벼락](http://padlet.com/mtinet/3pgm4gj0k8e4).
 
+
+
 ---
+# 학교 관리
+---
+
+* [IP관리](goo.gl/hPEsEd).
+
+
+
+---
+
+
