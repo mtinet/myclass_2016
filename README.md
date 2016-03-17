@@ -31,7 +31,7 @@
 # 학교 관리
 ---
 
-* [IP관리](goo.gl/hPEsEd).
+* [IP관리](http://goo.gl/hPEsEd).
 
 
 
