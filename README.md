@@ -7,6 +7,8 @@
 
 * [내 시간표](https://goo.gl/bEZ9hu). 
 
+* [예산 운용 현황](https://1drv.ms/x/s!AuczxMq8lCmfqF7roHrK2QgV0nQp)
+
 
    
 ---
