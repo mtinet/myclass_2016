@@ -38,7 +38,7 @@
 
 * [IP관리](https://goo.gl/hPEsEd).
 
-* [학사일정](https://drive.google.com/file/d/0B_TKD_C5fEUBUDNnTjJPa0d3Y2c/view?usp=sharing)
+* [학사일정](https://drive.google.com/file/d/0B_TKD_C5fEUBUDNnTjJPa0d3Y2c/view?usp=sharing).
 
 ---
 
